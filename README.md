@@ -54,7 +54,7 @@ Solo presiona **Cmd + A** en el escritorio y se seleccionará automáticamente.
 
 Puedes ver el paso a paso completo aquí:
 
-🎥 [Ver video en YouTube](https://youtube.com/shorts/9kSSOMZbTKI)
+🎥 [Ver video en YouTube](https://youtube.com/shorts/MQgAQEuMJqA?feature=share)
 
 ---
 
